@@ -20,6 +20,7 @@ East Delta University <br>
 I’m also fascinated by <b>GenAI</b>, and would love to work with them even beyond cybersecurity-focused applications. Beyond academics, I’m an avid <b>debater</b> who enjoys thoughtful discussions and exchanging ideas that challenge perspectives and inspire innovation.
 </div>
 
+> Find my [Academic CV Here](https://drive.google.com/file/d/1Pr1luUbxAbItLhzU-AB4hDev68X0zBDF/view?usp=sharing)
 
 
 <table>
